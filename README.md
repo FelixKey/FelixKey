@@ -8,4 +8,4 @@ I'm currently Informatics undergraduate student and technology enthusiast. I hav
 - 🌐 Feel free to visit my website to learn more about me
 
 ## Reach out
-Feel Free to Connect me on [LinkedIn](linkedin.com/in/felix-kurniawan-800243341) or Reach out to me via email (me@felixkey.com). Im open to meet new people and make friends
+Feel Free to Connect me on [LinkedIn](https://www.linkedin.com/in/felix-kurniawan-800243341) or Reach out to me via email (me@felixkey.com). Im open to meet new people and make friends
